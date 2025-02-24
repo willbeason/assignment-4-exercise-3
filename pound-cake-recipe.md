@@ -4,4 +4,4 @@
 4. Add 9 eggs
 5. Mix until combined
 6. Bake at 350 degrees for 70 minutes
-7. Let cool for 5 minutes
+7. Take out of oven and allow to cool on wire rack for 5 minutes
